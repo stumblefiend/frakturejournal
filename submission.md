@@ -19,10 +19,10 @@ Proper submissions should never submit and must always mix mazel tov with moloto
 
 For examples of poems we’d love to publish, check what we’re about and see the following links:
 
-[Lines Breaking](https://www.poets.org/poetsorg/poem/lines-breaking) by José B. González
-[Urban Warming](https://www.poetryfoundation.org/poetrymagazine/poems/58657/urban-warming) by Truth Thomas
-[Natural Criminal](https://www.poets.org/poetsorg/poem/natural-criminal) by Francisco X. Alarcón
-[juxtaposing the black boy & the bullet](https://m.poets.org/poetsorg/poem/juxtaposing-black-boy-bullet) by Danez Smith
-[Poem Full of Worry Ending with My Birth](https://www.poets.org/poetsorg/poem/poem-full-worry-ending-my-birth) by Tarfia Faizullah
-[Native Tongues](http://www.marinpoetrycenter.org/blog/wp-content/uploads/2018/02/2017_2.pdf) by Ashley Sanchez
-[Lullaby in Fracktown](https://www.poetryfoundation.org/poetrymagazine/poems/58649/lullaby-in-fracktown) by Lilace Mellin Guignard
+- [Lines Breaking](https://www.poets.org/poetsorg/poem/lines-breaking) by José B. González
+- [Urban Warming](https://www.poetryfoundation.org/poetrymagazine/poems/58657/urban-warming) by Truth Thomas
+- [Natural Criminal](https://www.poets.org/poetsorg/poem/natural-criminal) by Francisco X. Alarcón
+- [juxtaposing the black boy & the bullet](https://m.poets.org/poetsorg/poem/juxtaposing-black-boy-bullet) by Danez Smith
+- [Poem Full of Worry Ending with My Birth](https://www.poets.org/poetsorg/poem/poem-full-worry-ending-my-birth) by Tarfia Faizullah
+- [Native Tongues](http://www.marinpoetrycenter.org/blog/wp-content/uploads/2018/02/2017_2.pdf) by Ashley Sanchez
+- [Lullaby in Fracktown](https://www.poetryfoundation.org/poetrymagazine/poems/58649/lullaby-in-fracktown) by Lilace Mellin Guignard
